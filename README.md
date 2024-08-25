@@ -1,2 +1,1 @@
-- 👋 Hi, I’m Yuvrajsinh Gohil
-- This is my alt account, main account [yuvrajsinh5252](https://github.com/yuvrajsinh5252)
+
